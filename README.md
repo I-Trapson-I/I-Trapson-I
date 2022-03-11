@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @I-Trapson-I
+- 📫 How to reach me : Discord: Trapson#0001

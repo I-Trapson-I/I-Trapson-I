@@ -1,7 +1,9 @@
 ★・・・・・・・・・・・・・・・・・・・・・・・・★
 
 - 👋 Hi, I’m @I-Trapson-I
-- 🤩 Owner of PerqGaming.com
+- 🤩 Owner of Trapson.com
+- 🤩 Owner of Trapson.pictures
+- 🤩 Dev / Founder of MerkRP
 - 📫 How to reach me : Discord: Trapson#0001
 - 
 ★・・・・・・・・・・・・・・・・・・・・・・・・★

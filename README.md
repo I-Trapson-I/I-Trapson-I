@@ -1,8 +1,7 @@
 ★・・・・・・・・・・・・・・・・・・・・・・・・★
 - 👋 Hi, I’m @I-Trapson-I
-- 🤩 Owner of Trapson.com
 - 🤩 Owner of Trapson.pictures
-- 🤩 Dev / Founder of MerkRP
+- 🤩 Dev / Founder of ReverseRP
 - 📫 How to reach me : Discord: Trapson#0001
 
 ★・・・・・・・・・・・・・・・・・・・・・・・・★

@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @I-Trapson-I
 - 🤩 Owner of Trapson.pictures
 - 🤩 Dev / Founder of ReverseRP
-- 📫 How to reach me : Discord: Trapson#0001
+- 📫 How to reach me : Discord: Trapson
 
 ★・・・・・・・・・・・・・・・・・・・・・・・・★
 
